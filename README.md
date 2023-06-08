@@ -1,6 +1,4 @@
 - ꒷︶꒷꒥꒷˚꒷︶꒷꒥꒷˚꒷︶꒷꒥꒷꒥ 
 - Hi, I’m @strawpurries / @scissorluv
-- I’m interested in | creation, collecting,
--  anytin pink r cute 
+- I’m interested in | creation, collecting, anytin pink r cute 
 - How to reach me | text me (link in bio)
--꒷︶꒷꒥꒷˚꒷︶꒷꒥꒷˚꒷︶꒷꒥꒷꒥
